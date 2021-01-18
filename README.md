@@ -11,5 +11,5 @@ He burnt his toung
 He threw the cup across the room out of sheer rage
 
 As soon as the cup broke he realised his *mistake*  
-His **coffee" desiser was not gone  
+His **coffee** desiser was not gone  
 And he decided to make another *cup*  
